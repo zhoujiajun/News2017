@@ -107,4 +107,4 @@
 ![百度竞价排名](/pic/微信图片_20180116195243.png)
 <br><br>
 据报道，一位在“英雄联盟”职业队训练的15岁孩子，他父母与豫章书院秘密签订生死状。他在参加省赛前一天被神秘人士掳进书院。他不知悔改，因而被困三年之久，身心对电竞的爱消磨殆尽。真遗憾，如果不是豫章书院，说不定今年LOL世界赛大放异彩的RNG或WE战队就有他的身影了。
-<iframe height=498 width=510 src="https://v.qq.com/x/cover/u14ize2tlofphve/k056764cn0m.html" frameborder=0 allowfullscreen></iframe>
+<a href="https://v.qq.com/x/cover/u14ize2tlofphve/k056764cn0m.html" target="_blank">视频报道戳这里</a>
